@@ -1,1 +1,1 @@
-I feel like I'll have to change a lot of READMEs after this
+Is this too meta? I feel like this is getting too meta.
