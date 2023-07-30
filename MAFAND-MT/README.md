@@ -1,1 +1,0 @@
-masakhane skkrt skkrt
